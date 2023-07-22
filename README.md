@@ -1,1 +1,2 @@
-# Aluminium-Kozijnen
+# Aluminium Kozijnen
+Like most other metals, [Aluminium Kozijnen](https://www.aluminiumschuifpuionline.nl/aluminium-kozijnen/) is physically stronger than any timber could be and has the ability to last you for many years. It means that when you invest in this kind of framing, it will give you a reasonable worth for your money. Durability. Aluminium windows have can last up to 30 years. This is because, aluminium is considerably more resistant to the outside elements compared to other frames, making them less likely to warp or rot as a result. Aluminium also has a high strength-to-weight ratio, making them harder to dent. 
